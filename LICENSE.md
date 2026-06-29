@@ -1,4 +1,4 @@
-
+break a brainrot egg Scripts exclusive is the best break a brainrot egg Script, featuring no cooldown and auto-collect. Safe and powerful for all
 
 
 
